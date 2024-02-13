@@ -29,4 +29,4 @@ To view the website:
 
 📬 Feel free to reach out to me via email at [zhraazbs@gmail.com](mailto:zhraazbs@gmail.com) for any inquiries or collaboration opportunities.
 
-© 2023 Zbs
+© 2024 Zbs
